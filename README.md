@@ -4,7 +4,7 @@
 
 * [Mercredi 13 Avril](https://lewagon.zoom.us/j/81147561709?pwd=NzdUVXVCallwTVllRDcxcTA0R2pGQT09)
 * [Jeudi 14 Avril](https://lewagon.zoom.us/j/89254529209?pwd=M2FGNmt0VmNGQ1Y3Ti9RWUdneTZWdz09)
-* [Vendredi 15 Avril](https://lewagon.zoom.us/)
+* [Vendredi 15 Avril](https://lewagon.zoom.us/j/87651160278?pwd=aXdlV01BRUs3em50b3dLLyt6UVVqdz09)
 
 ## Week 2
 
