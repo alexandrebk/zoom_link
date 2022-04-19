@@ -9,7 +9,7 @@
 ## Week 2
 
 * [Lundi 18 Avril](https://lewagon.zoom.us/j/86355703306?pwd=c20zOURzS0xBZTU1cDI5QkYzbjVEZz09)
-* [Mardi 19 Avril](https://lewagon.zoom.us/)
+* [Mardi 19 Avril](https://lewagon.zoom.us/j/85967444885?pwd=bWtFL3NFbEpIRE9Pbksrdmd3cnRxUT09)
 * [Mercredi 20 Avril](https://lewagon.zoom.us/)
 * [Jeudi 21 Avril](https://lewagon.zoom.us/)
 * [Vendredi 22 Avril](https://lewagon.zoom.us/)
