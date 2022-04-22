@@ -14,7 +14,7 @@
 * [Mardi 19 Avril](https://lewagon.zoom.us/j/85967444885?pwd=bWtFL3NFbEpIRE9Pbksrdmd3cnRxUT09)
 * [Mercredi 20 Avril](https://lewagon.zoom.us/j/83583415451?pwd=aGU1OHMxazZhV3JKcXlWT2FKcEpPUT09)
 * [Jeudi 21 Avril](https://lewagon.zoom.us/j/81686198037?pwd=cXd6UGlGRFVEUjZab1hKK2pvWWFsdz09)
-* [Vendredi 22 Avril](https://lewagon.zoom.us/)
+* [Vendredi 22 Avril](https://lewagon.zoom.us/j/88053305920?pwd=Rjdtclp1K2NlanN3bzgyUnB3ZHN5UT09)
 
 ## Week 3
 
