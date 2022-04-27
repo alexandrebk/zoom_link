@@ -20,7 +20,7 @@
 
 * [Lundi 25 Avril](https://lewagon.zoom.us/j/81623081861?pwd=bk1hdTJIK3FQelBPR1Bad1RNV3N4QT09)
 * [Mardi 26 Avril](https://lewagon.zoom.us/j/82584308036?pwd=a1lwVmpOSHFwQlVBL3VOcHlZaGpPQT09)
-* [Mercredi 27 Avril](https://lewagon.zoom.us/)
+* [Mercredi 27 Avril](https://lewagon.zoom.us/j/89765365006?pwd=Q0IxalVxOHl1NUlhMDMxdEJLdm5GQT09)
 * [Jeudi 28 Avril](https://lewagon.zoom.us/)
 * [Vendredi 29 Avril](https://lewagon.zoom.us/)
 
