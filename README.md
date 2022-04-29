@@ -22,7 +22,7 @@
 * [Mardi 26 Avril](https://lewagon.zoom.us/j/82584308036?pwd=a1lwVmpOSHFwQlVBL3VOcHlZaGpPQT09)
 * [Mercredi 27 Avril](https://lewagon.zoom.us/j/89765365006?pwd=Q0IxalVxOHl1NUlhMDMxdEJLdm5GQT09)
 * [Jeudi 28 Avril](https://lewagon.zoom.us/j/88162188537?pwd=Q292U3dtZlgzZWxFTW1OVmM4c3lJdz09)
-* [Vendredi 29 Avril](https://lewagon.zoom.us/)
+* [Vendredi 29 Avril](https://lewagon.zoom.us/j/84457946213?pwd=OEtZREVURXZGWVJrSVFPUVhzR0hyUT09)
 
 ## Week 4
 ## Week 5
