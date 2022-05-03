@@ -26,6 +26,10 @@
 
 ## Week 4
 * [Lundi 02 Mai](https://lewagon.zoom.us/j/84964879597?pwd=bUZESXpQWk9HRlRVekdrUHJJY1FmZz09)
+* [Mardi 03 Mai](https://lewagon.zoom.us/j/89904773024?pwd=UzZocHk2QnpZNkJlaDdnNU9laStrQT09)
+* [Mercredi 04 Mai]()
+* [Jeudi 05 Mai]()
+* [Vendredi 06 Mai]()
 
 ## Week 5
 ## Week 6
