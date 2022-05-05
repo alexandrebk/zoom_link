@@ -28,7 +28,7 @@
 * [Lundi 02 Mai](https://lewagon.zoom.us/j/84964879597?pwd=bUZESXpQWk9HRlRVekdrUHJJY1FmZz09)
 * [Mardi 03 Mai](https://lewagon.zoom.us/j/89904773024?pwd=UzZocHk2QnpZNkJlaDdnNU9laStrQT09)
 * [Mercredi 04 Mai](https://lewagon.zoom.us/j/89885970637?pwd=OXhYOXlWMGJpdmZ1bWR5em1jVVhVUT09)
-* [Jeudi 05 Mai]()
+* [Jeudi 05 Mai](https://lewagon.zoom.us/j/88290393028?pwd=ZW5IenIreTdvQStxL3hCeTZnS2dkUT09)
 * [Vendredi 06 Mai]()
 
 ## Week 5
