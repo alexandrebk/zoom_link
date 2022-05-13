@@ -36,6 +36,7 @@
 * [Mardi 10 Mai](https://lewagon.zoom.us/j/88296916698?pwd=M1d2WHZVNUgyY2ZIMkkxVm1ZNDVQdz09)
 * [Mercredi 11 Mai](https://lewagon.zoom.us/j/82345674398?pwd=aG1FN3h5MHFYRENmdDZYa3lmS2VQZz09)
 * [Jeudi 12 Mai](https://lewagon.zoom.us/j/83337494524?pwd=c0VONmU5Q2l0ZGZDMlRYVnE4ekNUQT09)
+* [Vendredi 13 Mai](https://lewagon.zoom.us/j/82654766376?pwd=TGxhWlBScjBMU2dwOFQrajBLY3FEUT09)
 
 ## Week 6
 ## Week 7
